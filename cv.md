@@ -31,4 +31,4 @@ I am a hardworking and ambitious person who extremely motivated to constantly de
 [example](https://estatevisualpro.com/)
 
 
-*English*: Upper-Intermediate;
+*English*: Upper-Intermediate.
